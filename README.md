@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Fortnite and my Crush
 - 🌱 I’m currently learning ... Fortnite fighting skill
 - 💞️ I’m looking to collaborate on ...my Girl
-- 📫 How to reach me ... Instagram
+- 📫 How to reach me ... Instagram : skr1ccy_
 - 😄 Pronouns: ... 0.0.4
 - ⚡ Fun fact: .c.a. lol
 
