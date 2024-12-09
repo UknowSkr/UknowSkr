@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...my Girl
 - 📫 How to reach me ... Instagram
 - 😄 Pronouns: ... 0.0.4
-- ⚡ Fun fact: ... lol
+- ⚡ Fun fact: .c.a. lol
 
 <!---
 UknowSkr/UknowSkr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
